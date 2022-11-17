@@ -1,1 +1,2 @@
-# https://humanidade-para-curriculo.com.br
+# https://anapaulafreita.github.io/humanidade-para-curriculo/
+
